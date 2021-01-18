@@ -3,4 +3,4 @@ carrot 1kg grated
 sugar
 ghee
 khoya
-fried nuts
+fried nuts like kismis
